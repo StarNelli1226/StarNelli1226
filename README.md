@@ -4,4 +4,4 @@
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=32BFAD&width=435&lines=work+in+progress..." alt="Typing SVG" /></a>
 
-[STRAWPAGE!!](https://star1226.straw.page)  [ATA!!](https://starlei.atabook.org/) 
+[STRAWPAGE!!](https://star1226.straw.page)  [ATA!!](https://starlei.atabook.org/) 🦈
