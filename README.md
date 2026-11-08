@@ -10,3 +10,5 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31hqw6i54yfhrl77ynuni2fwtaau&cover_image=true&theme=spotify-embed&show_offline=false&background_color=004f99&interchange=false&profanity=false&hide_remaster=false&mode=dark&bar_color=3fa69a&bar_color_cover=false">
   </a>
 </p>
+
+<p align="center">  DNI list-> -14/+20yo, any kind of hate towards me/my friends/my faves or interests, supporting tr*mp or any problematic ppl, pro/darkshippers, inappropriate behaviors or ponies, ppl being rude/toxic for no reason
