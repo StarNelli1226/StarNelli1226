@@ -9,6 +9,6 @@
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31hqw6i54yfhrl77ynuni2fwtaau&cover_image=true&theme=default&show_offline=false&background_color=004f99&interchange=false&profanity=false&hide_remaster=false&bar_color_cover=false&bar_color=3fa69a">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31hqw6i54yfhrl77ynuni2fwtaau&cover_image=true&theme=spotify-embed&show_offline=false&background_color=004f99&interchange=false&profanity=false&hide_remaster=false&mode=light&bar_color=3fa69a&bar_color_cover=true">
   </a>
 </p>
