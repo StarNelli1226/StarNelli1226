@@ -4,7 +4,7 @@
 
 <p align="center"> <img width="540" height="400" alt="Tumblr" src="https://github.com/user-attachments/assets/12c3b03f-7f11-483f-8d6d-392d60128165" />
 
-[My Ata!!^^](https://sharky.atabook.org/)  [My SP!^^](https://star1226.straw.page) 
+<p align="center">[My Ata!!^^](https://sharky.atabook.org/)  <p align="center">[My SP!^^](https://star1226.straw.page) 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31hqw6i54yfhrl77ynuni2fwtaau&cover_image=true&theme=spotify-embed&show_offline=false&background_color=004f99&interchange=false&profanity=false&hide_remaster=false&mode=dark&bar_color=3fa69a&bar_color_cover=false">
