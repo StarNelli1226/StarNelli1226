@@ -4,8 +4,8 @@
 <p align="center"> Im playing pt from my pc... so i might slow reply, disconnect often, might make misclick so often and might take some time to use expressions! pls forgive me 😔 and please don't mind my grammar/spelling mistakes...
 <p align="center"> <img width="540" height="400" alt="Tumblr" src="https://github.com/user-attachments/assets/12c3b03f-7f11-483f-8d6d-392d60128165" />
 <p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31hqw6i54yfhrl77ynuni2fwtaau&cover_image=true&theme=spotify-embed&show_offline=false&background_color=004f99&interchange=false&profanity=false&hide_remaster=false&mode=dark&bar_color=3fa69a&bar_color_cover=false">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31hqw6i54yfhrl77ynuni2fwtaau&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31hqw6i54yfhrl77ynuni2fwtaau&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false&mode=dark">
   </a>
 </p>
 <p align="center">  DNI list-> -14/+20yo/iwc, any kind of hate towards me/my friends/my faves or interests, supporting tr*mp or any problematic ppl, pro/darkshippers, inappropriate behaviors or ponies, ppl being rude/toxic for no reason(its alr if u are friends w me!)
