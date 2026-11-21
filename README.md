@@ -10,7 +10,7 @@
   </details>
  <details> 
  <summary>ʜᴏɴᴏʀᴏʙʟᴇ ᴍᴇɴᴛɪᴏɴꜱ</summary>
-  Rodricks/mv3s wife-->@R0DRICK-HEFFLEY, 𝙈𝙮 𝙇𝙤𝙫𝙚-->@FEMTANYLX, gr63's wife-->@MoonlitPromenade,  op81 irl-->@vibecodepiastri, @ascrrr, @rvsseII, @gini55, @dmutt7 + friends list!<3 
+  Rodricks/mv3s wife--> @R0DRICK-HEFFLEY, 𝙈𝙮 𝙇𝙤𝙫𝙚--> @FEMTANYLX, gr63's wife--> @MoonlitPromenade,  op81 irl--> @vibecodepiastri, @ascrrr, @rvsseII, @gini55, @dmutt7 + friends list!<3 
  </details>
    <details> 
    <summary>𝙈𝙮 𝙎𝙤𝙘𝙞𝙖𝙡𝙨</summary>
