@@ -1,10 +1,10 @@
 <p align="center"> <img src="https://hitcount.dev/p/StarNelli1226/Alienelli%20/README.md.svg?label=Race+Points&labelColor=18b99f&countColor=012b30" alt="Hit Counter">
 <p align="center">  if u see me as 👽/🐯 or Lei in ur ata or sp im just so nervous to int in pt... 
-<details open>
+<details>
 <summary>basic things about me!</summary>
  Sometimes I overthink everything, even unintentionally, and because of this, I can be a bit introverted at times. Please forgive me and don’t be harsh or rude to me because of this behavior; I’m very sensitive about these matters. and I am highly sensitive and insecure person please iwec! (check sp for more abt me!)
 </details>
-  <details open> 
+  <details> 
     <summary>DNI list</summary>
     -14/+20yo/iwc, any kind of hate towards me/my friends/my faves or interests, supporting tr*mp or any problematic ppl, pro/darkshippers, inappropriate behaviors or ponies, ppl being rude/toxic for no reason(its alr if u are friends w me!)
   </details>
