@@ -8,10 +8,6 @@
     <summary>ＤＮＩ</summary>
     -14/+20yo/iwc, any kind of hate towards me/my friends/my faves or interests, supporting tr*mp or any problematic ppl, pro/darkshippers, inappropriate behaviors or ponies, ''it's just a joke'' type ppl, ppl being rude/toxic for no reason(its alr if we are close)
   </details>
- <details> 
- <summary>ʜᴏɴᴏʀᴏʙʟᴇ ᴍᴇɴᴛɪᴏɴꜱ</summary>
-  Rodricks/mv3s wife--> @R0DRICK-HEFFLEY, 𝙈𝙮 𝙇𝙤𝙫𝙚--> @FEMTANYLX, gr63's wife--> @MoonlitPromenade,  op81 irl--> @vibecodepiastri, @ascrrr, @rvsseII, @gini55, @dmutt7 + friends list!<3 
- </details>
    <details> 
    <summary>𝙈𝙮 𝙎𝙤𝙘𝙞𝙖𝙡𝙨</summary>
    *starnelli1226 on snap 
