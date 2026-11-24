@@ -6,7 +6,7 @@
 </details>
   <details> 
     <summary>ＤＮＩ</summary>
-    -14/+20yo/iwc, any kind of hate towards me/my friends/my faves or interests, supporting tr*mp or any problematic ppl, pro/darkshippers, inappropriate behaviors or ponies, ''it's just a joke'' type ppl, ppl being rude/toxic for no reason(its alr if we are close)
+    -14/+20yo/iwc, any kind of hate towards me/my friends/my faves or interests, supporting tr*mp or any problematic ppl, pro/darkshippers, inappropriate behaviors or ponies, ''it's just a joke'' type ppl, ppl being rude/toxic for no reason(its alr if we are close) you can find a more detailed list from my sp!
   </details>
    <details> 
    <summary>𝙈𝙮 𝙎𝙤𝙘𝙞𝙖𝙡𝙨</summary>
