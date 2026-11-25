@@ -2,7 +2,7 @@
 <p align="center">  if u see me as 👽/🐯 or Lei in ur ata or sp im just so nervous to int in pt... 
 <details>
 <summary>𝐁𝐚𝐬𝐢𝐜𝐬 𝐚𝐛𝐭 𝐦𝐞</summary>
- Sometimes I overthink everything, even unintentionally, and because of this, I can be a bit introverted at times. Please forgive me and don’t be harsh or rude to me because of this behavior; I’m very sensitive about these matters. my mood swings a lot recently, so please dont take my unexpected moodswings personally!! i might be so affectional and i sometimes use ''dear'' ''baby'' or anything like that, if that makes u uncomf let me know!! and I am highly sensitive and insecure person most of the time so please iwec! (check sp for more abt me!)
+ Sometimes I overthink everything, even unintentionally, and because of this, I can be a bit introverted at times. Please forgive me and don’t be harsh or rude to me because of this behavior; I’m very sensitive about these matters. my mood swings a lot recently, so please dont take my unexpected moodswings personally!!! and I am highly sensitive and insecure person most of the time so please iwec! (check sp for more abt me!)
 </details>
   <details> 
     <summary>ＤＮＩ</summary>
