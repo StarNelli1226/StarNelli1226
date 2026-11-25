@@ -21,3 +21,5 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31hqw6i54yfhrl77ynuni2fwtaau&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false&mode=dark">
   </a>
 </p>
+<p align="center"> <img width="512" height="100" alt="ererererer" src="https://github.com/user-attachments/assets/82e344a1-5a53-4098-ab44-445e0203f547" />
+<p align="center"> <img width="512" height="100" alt="yesyes" src="https://github.com/user-attachments/assets/cdac66d8-8ac6-4316-905b-49cddbadda5b" />
